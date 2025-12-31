@@ -1,4 +1,4 @@
-# Town Of Host-K
+# Town Of Host-STARS
 
 ## この Mod について
 
